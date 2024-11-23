@@ -1,4 +1,5 @@
-![Uploading Leonardo_Phoenix_A_futuristic_neonlit_digital_background_with_1.jpg…]()
+![Leonardo_Phoenix_A_futuristic_neonlit_digital_background_with_1](https://github.com/user-attachments/assets/581e8fe3-1dc5-4f4f-bd61-71cb149ffe53)
+
 
 
 # Juego_adivinanzas
